@@ -11,5 +11,5 @@ Meu nome ana julia
 
 00001114355094sp@al.educacao.sp.gov.br
 
+@ea_.naju
 
-![descrição do GIF](link GIF do Tenor)
